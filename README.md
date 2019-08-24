@@ -4,7 +4,7 @@
 
 **Resumen:**
 
-Con un total de ** ingresantes y un total de 248 de estudiantes en formación para el año 2019, y próxima a cumplir 20 años desde su creación en el 2001, la enseñanza de esta disciplina en la Universidad Nacional Mayor de San Marcos ha pasado por diferentes estapas emergentes ligadas a procesos politico-administrativos que han tenido impacto en la linea académica adoptada por sus estudiantes tanto a nivel teorico como metodológico.
+Con un total de 98 ingresantes y un total de 248 de estudiantes en formación para el año 2019, y próxima a cumplir 20 años desde su creación en el 2001, la enseñanza de esta disciplina en la Universidad Nacional Mayor de San Marcos ha pasado por diferentes etapas emergentes ligadas a procesos politico-administrativos que han tenido impacto en la linea académica adoptada por sus estudiantes tanto a nivel teorico como metodológico.
 
 Si actualmente usted estudiante de Ciencia Politica en la Universidad Nacional Mayor de San Marcos (UNMSM) agradecería llene el siguiente cuestionario.
 
